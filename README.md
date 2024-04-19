@@ -7,6 +7,6 @@ you are free to use them for your covers/remixes/song as you credit me properly
 
 
 
-5/78 brawlers are done as i write this 
+
 
 credits to the Brawl stars team for the amazing voice acting for the characters ofc
